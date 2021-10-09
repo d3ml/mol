@@ -1,1 +1,1 @@
-# Compondra de qui de droit
+# Comprendra à qui de droit
